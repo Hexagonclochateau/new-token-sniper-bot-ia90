@@ -1,4 +1,4 @@
-# 
+# ultimate MEV Bot for new token sniper bot | meme-coin-scanning & auto-sell offers the most advanced new token sniper bot, with meme-coin-scanning and auto-sell. Ideal for
 
 
 
